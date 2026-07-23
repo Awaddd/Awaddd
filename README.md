@@ -1,0 +1,1 @@
+[me](https://awaddini.com) . [linkedin](https://www.linkedin.com/in/awaddini/) . [metro](https://metro.awaddini.com) . [lmn](https://awaddini.com/projects/legal-mentors-network) . [writing](https://awaddini.com/#articles) . [email](mailto:awaddini@hotmail.com)
